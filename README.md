@@ -2,4 +2,6 @@
 
 - 👩‍💻 Profession: Medical Physicist
 - 🔥 Field of interest: heat transfer, medical devices, mathematical modelling, simulations
-- 📫 How to reach me: kristinapikl01@gmail.com  
+- 📫 How to reach me: www.linkedin.com/in/kristina-pikl
+
+
